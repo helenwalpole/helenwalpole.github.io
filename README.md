@@ -1,2 +1,2 @@
 # helenwalpole.github.io
-Helen Walpole | Creative, meaningful experiences
+Helen Walpole | Designing creative, meaningful experiences
